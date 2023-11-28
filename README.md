@@ -17,4 +17,4 @@ I am deeply intrigued by the potential of AI and Machine Learning in solving rea
 I am always on the lookout for exciting projects, especially those at the intersection of AI/ML and web technologies. If you are working on something that aligns with my interests, I’d love to contribute and learn together.
 
 ### 📫 Reach Out to Me
-Feel free to connect with me for collaborations, knowledge sharing, or just a good tech discussion. You can reach me at mohammedz1ane@outlook.com or connect with me on LinkedIn: coming soon😊.
+Feel free to connect with me for collaborations, knowledge sharing, or just a good tech discussion. You can reach me at mohammedz1ane@outlook.com or connect with me on [LinkedIn](https://www.linkedin.com/in/your-profile) for more professional details.
